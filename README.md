@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nojahhh
 - 👀 I’m interested in basically everything that "exists" in the universe.
-- 🌱 I’m currently learning as much as I can. Want to become a polyglot of programatic languages.
+- 🌱 I’m currently learning as much as I can. Dreaming of becoming a polyglot of programatic languages.
 - 💞️ I’m looking to collaborate on all the things I have time with and that I find interesting.
 - 📫 How to reach me is a good question. Email seems to be the best digital alternative. Or you can just give me a call.
